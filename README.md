@@ -1,2 +1,2 @@
 # toanhoc.96.lt
-1 dự án nho nhỏ làm để thi thố những ngày tháng ở cấp 3 <3 hêh
+Dự án bé xíu xiu hồi cấp 3 làm bằng WP đem đi thi abc xyz cũng có tí giải và domain hết hạn nên giữ lại làm kỷ niệm <3 hêh
